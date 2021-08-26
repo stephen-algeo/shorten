@@ -5,6 +5,9 @@ Below is a list of things I use and recommend that give bonuses for signing up. 
 * InvestEngine - Deposit and invest £100 and get £75 bonus
 [Sign up here](https://investengine.com/?utm_medium=share&grsf=mr974o "investengine.com")
 
+* Stake - Deposit £50 and get a free random share
+[Sign up here](https://hellostake.com/uk/referral?referrer=stephena286 "HelloStake.com")
+
 ## Property Advertising
 
 * OpenRent - List your first property for free on OpenRent.
